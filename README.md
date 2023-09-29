@@ -1,0 +1,2 @@
+# portfoliyo
+mening portfoliyam
